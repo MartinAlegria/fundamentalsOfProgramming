@@ -1,2 +1,2 @@
-# Homeworks and random files from the class
+# Homeworks and random files from the class
 :)
